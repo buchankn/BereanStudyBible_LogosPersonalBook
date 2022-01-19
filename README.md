@@ -1,0 +1,1 @@
+# BereanStudyBible_LogosPersonalBook
